@@ -4,3 +4,7 @@
 - [项目简介](项目简介/项目简介.md)
 - [项目进度](项目简介/项目进度.md)
 - [风险评估](风险评估/宝龙地产正式宣告违约.md)
+
+# 沟通群
+Telegram： https://t.me/+TRRFQyTHfIgwOGY1
+![1691563683907](https://github.com/xcwefamily/xc_yyjy/assets/110075901/69758769-3158-479c-b667-52e4d5f24a2b)
